@@ -1,0 +1,2 @@
+# Ayam-jago
+Okey 
